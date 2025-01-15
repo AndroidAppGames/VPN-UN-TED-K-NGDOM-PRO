@@ -50,4 +50,6 @@ If something does not work, then do not rush to put 1 star. Try to choose anothe
 
 You can also contact us at support@tap2free.net if you need a PRO server in a new location.
 
-The link to download is below and I want to raise money and share it with you and I would be happy if you help 🫸🏻🫷🏻  https://uploadrar.com/r7dxzy2fwhjg 👈🏻   VPN united kingdom Pro Link  https://modsfire.com/sgj73pQ45a65biO 👈🏻 VPN united kingdom Pro Link 
+The link to download is below and I want to raise money and share it with you and I would be happy if you help 🫸🏻🫷🏻
+
+https://uploadrar.com/r7dxzy2fwhjg 👈🏻   VPN united kingdom Pro Link  https://modsfire.com/sgj73pQ45a65biO 👈🏻 VPN united kingdom Pro Link 
